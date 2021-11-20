@@ -1,1 +1,2 @@
-https://chymaskur.github.io/mashkurbank/.
+Link
+https://maskurchy.github.io/Mashkur-Bank/
